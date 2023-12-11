@@ -1,6 +1,8 @@
 ## Hi there 👋
 
-At our organization, the pursuit of finding a neutral product fit is more than just a business goal; it's a way of life. We foster strong connections with open-minded individuals and businesses, creating bonds that go beyond professional relationships, evolving into friendships and a sense of family. Our shared vision for a better, more sustainable lifestyle drives us to develop products that are not only efficient but also rooted in empathy and compassion.
+At our organization, the pursuit of finding a proiftable product market fit is more than just a business goal; it's a way of life. We foster strong connections with open-minded individuals and businesses, creating bonds that go beyond professional relationships, evolving into friendships and a sense of family. Our shared vision for a better, more sustainable lifestyle drives us to develop products that are not only efficient but also rooted in empathy and compassion.
+
+We aim to unlock the market's hidden potential, akin to finding a needle in a haystack. Our goal is to help investors discover profitable businesses and connect them with investors whose values align with their business vision.
 
 We are committed to cultivating a more equitable, fair, and transparent human ecosystem by leveraging the best that life has to offer. By combining innovation, sustainability, and an unwavering focus on human-centric design, we believe we can redefine the way we live and work, ultimately contributing to a brighter and more inclusive future for all.
 
